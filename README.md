@@ -1,1 +1,1 @@
-pattanan-fahgiyhub.io
+pattanan-fahgtyhub.io
